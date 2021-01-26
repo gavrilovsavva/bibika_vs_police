@@ -1,1 +1,0 @@
-# bibika_vs_police
